@@ -1,1 +1,1 @@
-# Hi, I'm Thomas Tudja
+# Hi, I'm Tomas Tudja
